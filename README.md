@@ -1,4 +1,4 @@
-### I am a postgraduate researcher at School of Global Development, University of East Anglia. You can find more about [here](https://research-portal.uea.ac.uk/en/persons/sarika-chaudhary/)
+### I am a postgraduate researcher at School of Global Development, University of East Anglia. You can find more about me [here](https://research-portal.uea.ac.uk/en/persons/sarika-chaudhary/)
 
 
 
