@@ -1,4 +1,4 @@
-### [Postgraduate Researcher](https://research-portal.uea.ac.uk/en/persons/sarika-chaudhary/) at School of Global Development, University of East Anglia
+### [Sarika Chaudhary](https://research-portal.uea.ac.uk/en/persons/sarika-chaudhary/) is a postgraduate researcher at School of Global Development, University of East Anglia
 
 
 
